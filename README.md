@@ -1,2 +1,2 @@
 
-https://ranaberi.github.io/benco/
+https://ranaberi.github.io/Benco/
